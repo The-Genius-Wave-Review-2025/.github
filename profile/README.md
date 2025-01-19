@@ -6,7 +6,7 @@ The Genius Wave is an audio program designed to activate theta brainwaves, which
 
 The program is rooted in neuroscience, combining traditional research with modern technology to create a tool that’s both accessible and effective. It’s like giving your brain a daily workout without lifting a finger—just press play and let the soundwaves do the work.
 
-🚀Ready to boost your brainpower? Try The Genius Wave today and unlock your full potential! [Click Here to get started]([url](https://getsmartdeals.shop/Go-The-Genius-Wave))!
+🚀Ready to boost your brainpower? Try The Genius Wave today and unlock your full potential! [Click Here to get started](https://getsmartdeals.shop/Go-The-Genius-Wave)
 
 ## What We Loved About The Genius Wave
 
