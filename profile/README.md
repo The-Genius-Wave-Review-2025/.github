@@ -6,7 +6,7 @@ The Genius Wave is an audio program designed to activate theta brainwaves, which
 
 The program is rooted in neuroscience, combining traditional research with modern technology to create a tool that’s both accessible and effective. It’s like giving your brain a daily workout without lifting a finger—just press play and let the soundwaves do the work.
 
-# 🚀Ready to boost your brainpower? Try The Genius Wave today and unlock your full potential! [Click Here to get started](https://getsmartdeals.shop/Go-The-Genius-Wave)
+### 🚀Ready to boost your brainpower? Try The Genius Wave today and unlock your full potential! [Click Here to get started](https://getsmartdeals.shop/Go-The-Genius-Wave)
 
 ## What We Loved About The Genius Wave
 
@@ -58,7 +58,7 @@ Cognitive Benefits: Users report improved focus, memory retention, and decision-
 
 Emotional Benefits: The program also promotes emotional intelligence, helping you manage stress and build better relationships.
 
-# 🌟 Transform your mind, transform your life. Dive into The Genius Wave today! [Click Here to begin](https://getsmartdeals.shop/Go-The-Genius-Wave)
+### 🌟 Transform your mind, transform your life. Dive into The Genius Wave today! [Click Here to begin](https://getsmartdeals.shop/Go-The-Genius-Wave)
 
 ## My 90-Day Journey with The Genius Wave
 
@@ -118,4 +118,4 @@ Make The Genius Wave a daily habit. The more you use it, the more profound the r
 
 After 90 days of testing, I can confidently say that The Genius Wave is a powerful tool for cognitive enhancement. While it’s not a magic pill, it’s a scientifically-backed method for unlocking your brain’s potential. Whether you’re looking to reduce stress, boost creativity, or improve focus, The Genius Wave is worth a try.
 
-# 🚀Ready to boost your brainpower? Try The Genius Wave today and unlock your full potential! [Click Here to get started](https://getsmartdeals.shop/Go-The-Genius-Wave)
+### 🚀Ready to boost your brainpower? Try The Genius Wave today and unlock your full potential! [Click Here to get started](https://getsmartdeals.shop/Go-The-Genius-Wave)
